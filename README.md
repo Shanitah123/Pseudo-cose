@@ -1,0 +1,2 @@
+# Pseudo-cose
+Zawedde Shanitah 
