@@ -1,2 +1,2 @@
-# Pseudo-cose
+# Pseudo-code
 Zawedde Shanitah 
